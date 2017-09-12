@@ -1,9 +1,11 @@
 Jaime Rozema
 ============
 
-
 My motto is: “Actions speak louder than words”. Whenever I take on a project, I will go the extra mile to ensure it will be a success. People around me describe me as pro-active, helpful, responsible, reliable and loyal. My way of working stands out for its analytical, systematic approach, with an eye for detail.
 
+Contact
+-------
+E-mail: j.rozema@tilburguniversity.edu
 
 Education
 ---------
